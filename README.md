@@ -1,16 +1,24 @@
-## Hi there 👋
+ ⠀    ♡︎⠀ pony town info !!
 
-<!--
-**sweetests0ap/sweetests0ap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### $\color{#aff5ff}{\textsf{STATUSES:}}$
+- ⛔ busy ̣̣ㅤ  offtab doing classwork, replies will be slow
+- 🌙 away ̣̣ㅤ  offtab doing activities like gaming, replies will be slow
+- 🟢 online ̣̣ㅤsitting around, willing to chat !
 
-Here are some ideas to get you started:
+### $\color{#aff5ff}{\textsf{PERMISSIONS:}}$
+- C/H ̣̣ you can always freely cuddle and hide/hug !
+- KISS ̣̣ㅤyou can always freely kiss and nuzzle !
+- TOUCH ̣̣ you can always freely boop/touch !
+- DNC ̣̣  please do not copy my ponies, you can absolutely take inspo, however
+- W2I ̣̣  please whisper to interact, i'm always working when on so i miss messages
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### $\color{#aff5ff}{\textsf{FANDOMS:}}$
+- Dandy's World (primarily)
+- Forsaken
+- Clean Crew
+- Nullscape
+- Warrior Cats
+- Wings of Fire
+- Jurassic World
+
+$\color{#e8c3e6}{\scriptsize\textsf{thank you for reading !}}$
