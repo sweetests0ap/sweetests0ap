@@ -10,7 +10,7 @@
 - KISS ̣̣ㅤyou can always freely kiss and nuzzle !
 - TOUCH ̣̣ you can always freely boop/touch !
 - DNC ̣̣  please do not copy my ponies, you can absolutely take inspo, however
-- W2I ̣̣  please whisper to interact, i'm always working when on so i miss messages
+- W2I ̣̣  please whisper to interact, i'm usually offtab when on so i miss messages
 
 ### $\color{#86D3F9}{\textsf{FANDOMS:}}$
 - Dandy's World (primarily)
