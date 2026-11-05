@@ -21,4 +21,4 @@
 - Wings of Fire
 - Jurassic World
 
-      $\color{#aff5ff}{\scriptsize\textsf{thank you for reading !}}$
+ ⠀    ♡︎⠀ ty for viewing !
