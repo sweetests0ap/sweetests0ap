@@ -21,4 +21,4 @@
 - Wings of Fire
 - Jurassic World
 
-$\color{#e8c3e6}{\scriptsize\textsf{thank you for reading !}}$
+      $\color{#aff5ff}{\scriptsize\textsf{thank you for reading !}}$
